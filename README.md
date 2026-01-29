@@ -1,3 +1,9 @@
+<p align="center"> 
+$${\textsf{\color{#B57590}01/20}}$$ <br>
+$${\textsf{\color{#B57590}happy bday, detective.}}$$ <br>
+
+<br>
+
 <div align="center">
 
  <img width="500" height="700" alt="1000057047" src="https://files.catbox.moe/bto3ke.png" /> <br>
