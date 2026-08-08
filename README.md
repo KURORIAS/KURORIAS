@@ -6,7 +6,7 @@ $${\textsf{\color{#B57590}may death do us apart.}}$$ <br>
 
 <div align="center">
 
- <img width="500" height="700" alt="1000057047" src="https://files.catbox.moe/bto3ke.png" /> <br>
+ <img width="500" height="350" alt="1000057047" src="https://files.catbox.moe/bto3ke.png" /> <br>
 
 <br>
 
